@@ -1,0 +1,45 @@
+---
+layout:     post
+title:      Britain’s role in the Rohingya tragedy
+subtitle:   
+date:       1:00AM SEPTEMBER 4, 2018
+author:     BY BEN MACINTYRE
+header-img: 
+catalog: true
+tags:
+    - 
+    - 
+    - 
+---
+
+
+In 1942, in the hill jungles of the Burmese-Indian border, a redoubtable, 30-year-old Roedean-educated former debutante suspended her anthropological study of the local head-hunting tribes and instead, armed with two Sten guns, led them into battle against the Japanese.
+
+Ursula Graham Bower, the only female guerilla leader in the history of the British Army, was part of V Force, a unit set up to ­recruit and arm local fighters along the 1300km frontier ­between India and Burma. Bower led the Naga hill tribes, but many of the recruits to V Force were from the Muslim minority known as the Rohingya, the brutally persecuted ethnic group now at the centre of one of the world’s worst humanitarian crises.
+
+Bower and V Force were defending the empire. But inadvertently, the British were also stoking an ethnic conflict that, 76 years later, has forced more than half a million Rohingya refugees to flee Burma’s Rakhine state for Bangladesh during the past year.
+
+Viewed from Britain, the Rohingya crisis may seem a distant tragedy, involving warring ethnic groups about which people know little and seem to care less. But the story of the Rohingya is part of Britain’s imperial history and was shaped, as in so much of the world that was once coloured colonial pink, by the military and economic demands of empire.
+
+That should not be a cause for hand-wringing or some meaningless apology, and still less for celebration — the two irreconcilable poles of the post-colonial debate. But Britain’s complex historical part in the Rohingya calamity, beginning long before World War II, has been all but forgotten: this is Britain’s story too.
+
+Muslims probably arrived in Rakhine (then the kingdom of ­Arakan) as early as the eighth century. The Muslims called the place Rohang, hence Rohingya. But the British occupation of Arakan in the 19th century began the mass immigration of Muslims from Bengal into the region, encouraged by colonial authorities keen to exploit a source of cheap labour to work the paddy fields of Burma.
+
+Since both Burma and Bengal were parts of the British Raj, immigration was unrestricted. By 1927, out of a total population of 13 million in Burma, half a million were Muslim immigrants. According to the Burmese historian Thant Myint-U, “it was the equivalent to the UK today taking two million people a year”.
+
+The local ethnic Rakhines bitterly resented the Muslim minority, believing their land and jobs were being taken, and responded with racism and anger, helping to stoke Burmese nationalism and anti-Indian riots. To this day, the Myanmar government does not recognise the term Rohingya, ­referring to them as “Bengalis” and “illegal immigrants”.
+
+The Japanese invasion of Burma and the retreat of British forces left a power vacuum, setting off an explosion of violence as Muslims and Rakhines turned on one another. The communities, ­divided by ethnicity, ­religion and decades of enmity, were drawn to opposing sides of the conflict.
+
+V Force was created as a defence against the Japanese invasion of India. Groups like Bower’s Naga and the Rohingya were to be stay-behind ­forces, harassing the Japanese and providing intelligence. The Muslims of Arakan were armed and supplied by the British not just as a defence against the Japanese, but as a counter-balance to the pro-Japanese, Buddhist community.
+
+Inevitably, the two sides turned their guns on each other. Some historians claim that instead of resisting the Japanese, Rohingya recruits used their British-supplied weapons against their “collaborationist” Rakhine neighbours, destroying monasteries and pagodas and attacking Buddhist villages.
+
+Regarding the Rohingya as Allied sympathisers, Japanese ­troops raped, tortured and killed Muslims. Buddhists also killed Muslim Rohingyas, who fled in their thousands from the Buddhist-majority regions to the north, and into British-held Bengal. The numbers killed and displaced by both sides are hotly disputed, but alongside the world war a brutal ethnic, ­religious, civil war raged.
+
+Some V Force leaders believed the Muslim minority should be rewarded for its loyalty after the war. A “Muslim national area” in Burma, which some Rohingya believed they had been promised by the British, failed to materialise. As in other parts of the world, alliances of convenience forged in the heat of war were forgotten in peacetime. Burma finally gained independence in 1948.
+
+The Times
+	
+
+
