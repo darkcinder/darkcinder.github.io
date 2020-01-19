@@ -2,7 +2,7 @@
 layout:     post
 title:      Britain’s role in the Rohingya tragedy
 subtitle:   
-date:       1:00AM SEPTEMBER 4, 2018
+date:       2018-09-04
 author:     BY BEN MACINTYRE
 header-img: 
 catalog: true
