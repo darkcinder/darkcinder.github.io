@@ -12,6 +12,8 @@ tags:
     - 
 ---
 
+![](https://cdn.newsapi.com.au/image/v1/8ff76d63cf8e7459ae7190e49bb8527f?width=650)
+Ursula Graham Bower, known as the Naga Queen, commanded patrols and led ambushes in the jungle against the Japanese during World War II.
 
 In 1942, in the hill jungles of the Burmese-Indian border, a redoubtable, 30-year-old Roedean-educated former debutante suspended her anthropological study of the local head-hunting tribes and instead, armed with two Sten guns, led them into battle against the Japanese.
 
